@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @c0n7r0l
+- 👀 I’m interested in IT sphere
+- 🌱 I’m currently learning programming
+- 📫 How to reach me domekano0@mail.ru
